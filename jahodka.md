@@ -19,3 +19,7 @@ a tu menim lokalne vo svojom PC!
 
 znova zmena!!!
 
+dnes je **utorok**
+mame sa fajn
+uz stahujemeee!
+
