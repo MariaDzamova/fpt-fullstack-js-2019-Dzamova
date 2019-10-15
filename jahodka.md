@@ -23,3 +23,7 @@ zajtra ideme na pivo
 * ja
 * ty
 * my
+dnes je **utorok**
+mame sa fajn
+uz stahujemeee!
+
