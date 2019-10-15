@@ -14,4 +14,8 @@ Nastala zmena!
 
 menim
 
+
 a tu menim lokalne vo svojom PC!
+
+znova zmena!!!
+
