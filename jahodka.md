@@ -19,3 +19,7 @@ a tu menim lokalne vo svojom PC!
 
 znova zmena!!!
 
+zajtra ideme na pivo
+* ja
+* ty
+* my
