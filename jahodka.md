@@ -1,7 +1,7 @@
 # fpt-fullstack-js-2019-Dzamova
 
 ## Subor sa vola jahodka
-
+ hahah
 djfolsjfdisgjuisd
 
 hfdjuisghuthruitjig **gfdsga** dfjhsdfjudish
@@ -11,6 +11,8 @@ hfdjuisghuthruitjig **gfdsga** dfjhsdfjudish
 * agddg
 
 Nastala zmena!
+
+kde si? tutu
 
 menim
 
@@ -26,4 +28,8 @@ zajtra ideme na pivo
 dnes je **utorok**
 mame sa fajn
 uz stahujemeee!
+
+a uz dnes je streda
+hahah
+
 

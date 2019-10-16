@@ -4,8 +4,11 @@
 
 djfolsjfdisgjuisd
 
+preco nepisat nieco zrozumitelne?
+
 hfdjuisghuthruitjig **gfdsga** dfjhsdfjudish
 
+co je lepsie?
 * malina
 * malinka
 * malinocka
@@ -13,3 +16,6 @@ hfdjuisghuthruitjig **gfdsga** dfjhsdfjudish
 Nastala zmena!
 
 menim
+
+aj tuto cosi zmenime
+aby sa nepovedalo...
