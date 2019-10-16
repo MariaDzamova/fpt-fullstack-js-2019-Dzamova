@@ -2,8 +2,9 @@
 
 ## Subor sa vola jahodka
 
-djfolsjfdisgjuisd
-
+djf* fgsdg
+* dsgaga
+* agddg
 hfdjuisghuthruitjig **gfdsga** dfjhsdfjudish
 
 * fgsdg
@@ -12,10 +13,13 @@ hfdjuisghuthruitjig **gfdsga** dfjhsdfjudish
 
 Nastala zmena!
 
-menim
+mame sa fajn 
+wdfoqijoi 
+*ipfjpi
 
-
-a tu menim lokalne vo svojom PC!
+* fgsdg
+* dsgaga
+* agddgvo svojom PC!
 
 znova zmena!!!
 
@@ -23,7 +27,8 @@ zajtra ideme na pivo
 * ja
 * ty
 * my
-dnes je **utorok**
+thruitjig **gfdsga** dfjhsdfjudish
+
 mame sa fajn
 uz stahujemeee!
 
